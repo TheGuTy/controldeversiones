@@ -2,4 +2,4 @@
 
 segundo commit
 
-#hola mundo, soy carloza, no queria al guty de compañero, yo tampoco
+#hola mundo, soy carloza, no queria al gutyyyy de compañero, yo tampoco
